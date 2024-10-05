@@ -1,1 +1,8 @@
-# -PDF-Book-The-Colony-Club-Download-by-Shelley-Noble
+# [PDF] Book The Colony Club Download by Shelley Noble
+
+<p><strong>2 second-ago &mdash; Here Options to Downloading or Read Book of The Colony Club Download by: Shelley Noble the PDF online for free on Server Amazon, Reddit, Goodreads.</strong></p>
+<p style="text-align: center;"><strong>GET COPY FILE :</strong></p>
+<p style="text-align: center;"><strong><a href="https://us.ebookarea.xyz/?book=199531901-the-colony-club" target="_blank" rel="noopener">📢 : 🔗 The Colony Club</a>&nbsp;</strong></p>
+<p style="text-align: center;">File format : ePub, PDF, Kindle, AudioBook</p>
+<p><strong>SYNOPSIS :</strong></p>
+<p>When young Gilded Age society matron Daisy Harriman is refused a room at the Waldorf because they don?t cater to unaccompanied females, she takes matters into her own hands. She establishes the Colony Club, the first women?s club in Manhattan, where visiting women can stay overnight and dine with their friends; where they can discuss new ideas, take on social issues, and make their voices heard. She hires the most sought-after architect in New York, Stanford White, to design the clubhouse.As ?the best dressed actress on the Rialto? Elsie de Wolfe has an eye for d?cor, but her career is stagnating. So when White asks her to design the clubhouse interiors, she jumps at the chance and the opportunity to add a woman?s touch. He promises to send her an assistant, a young woman he?s hired as a draftsman.Raised in the Lower East Side tenements, Nora Bromely is determined to become an architect in spite of hostility and sabotage from her male colleagues. She is disappointed and angry when</p>
